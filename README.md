@@ -1,3 +1,3 @@
 # Trampek Watermark
 
-Discord: [https://discord.gg/babiczind](https://discord.gg/WxJybtbPEf)
+Discord: https://discord.gg/WxJybtbPEf
